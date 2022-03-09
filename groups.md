@@ -37,8 +37,10 @@ Adicionem seus grupos:
 * Rafael Rampim Soratto
 
 ### Grupo 7
-* 
-*
+* Matheus Fontes Pessoa de Mello
+* Pedro Acácio Rodrigues
+* Pedro Henrique Bortolucci Klayn
+* Ryan Lazareti Ramos
 
 ### Grupo 8
 * 
